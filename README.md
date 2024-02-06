@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about fantasy books, they're really my specialty
 - 📫 How to reach me: audrey.atherton@infofauna.ch
 - 😄 Pronouns: she/they
-- ⚡ Fun fact: mostly lives as cat servant
+- ⚡ Fun fact: mostly living as cat servant
 - 🖤 Going to hell but going down singing
 
 <!--
